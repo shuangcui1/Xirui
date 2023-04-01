@@ -2,7 +2,7 @@
 
 先给不认识席瑞的朋友科普一下。席瑞，奇葩说辩手，长这样。
 
-(/Users/hi/Downloads/For Justice/pic/1.png)
+!(./Xirui/1.png)
  
 
 奇葩说结束以后还在微博上为杨笠发声过，言论如下：
