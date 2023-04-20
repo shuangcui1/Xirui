@@ -8,7 +8,7 @@
 
 
 
-![](/assets/2.jpg)
+![2.jpg](https://s2.loli.net/2023/04/20/tCUjzLuEcq9p1ir.jpg)
  
 最近在微博上看到有很多人声称自己被席瑞骗钱，就搜了一下这个人（想当初看奇葩说还对他有点印象），没想到越搜越有料：论文剽窃，骗钱不还，直播霸凌，席瑞，你还有多少我们不知道的惊喜？
 ## 一，	论文剽窃
@@ -16,13 +16,13 @@
 鉴于他几乎所有场合都要强调一下自己的学历，甚至称自己早几十年能当教授……
 
 
-![](assets/%E8%87%AA%E7%A7%B0%E6%95%99%E6%8E%88.jpg)
+![自称教授.jpg](https://s2.loli.net/2023/04/20/3TK8jztnXqL2k5w.jpg)
  
 
 想来应该学术造诣很高了。于是，我怀着崇敬的心情搜了搜知网，大部分由其撰写的论文长这样：
 
  
- ![](https://github.com/shuangcui1/Xirui/blob/main/%E8%AE%BA%E6%96%87%E4%B8%80%E8%A7%88.png)
+![论文一览.png](https://s2.loli.net/2023/04/20/VxuDQ6djA1ZhMYO.png)
 
 请问席瑞教授想在大学教授什么课程？中学生作文吗？
 
@@ -35,8 +35,7 @@
 两篇论文的相似度，不多说了，直接上调色盘吧：
 
  
- ![](https://github.com/shuangcui1/Xirui/blob/main/%E8%B0%83%E8%89%B2%E7%9B%98.png)
-
+![调色盘.png](https://s2.loli.net/2023/04/20/kvrW624Xgsh73ZF.png)
 
 
 席瑞教授这篇论文，除摘要外总共2503字，涉嫌抄袭内容有1504字，是一篇长达1页的煌煌巨著。
@@ -46,27 +45,24 @@
 席瑞教授连借鉴都与常人不同，讲究一个以国际生为榜样，取韩国留学生之精髓，果真当得起教授这个词。
 不仅是论文，就连短视频，席瑞教授也是抄出了风格，抄出了水平。席瑞教授在抖音上曾用过一个账号“席瑞学长”，时不时更新一些视频指导广大中学生大学生的人生，而这其中的质量嘛，我们可以取一两视频窥知一二：
 
-
-
-![](https://github.com/shuangcui1/Xirui/blob/main/%E6%8A%96%E9%9F%B3%E8%87%AA%E7%84%B6%E6%B3%95%E5%88%99.jpg)
-
-
-
+![抖音自然法则.jpg](https://s2.loli.net/2023/04/20/I15ZdKDQr3paHt8.jpg)
 
 
 从图中可知，席瑞教授该视频发表于2021年12月1日，而简单搜一下，2021年10月1日，也就是早于席瑞视频两个月左右，就有ID为“时空先生”的用户在简书上发表：
 
  
- ![](https://github.com/shuangcui1/Xirui/blob/main/%E8%87%AA%E7%84%B6%E6%B3%95%E5%88%99%E6%8A%84%E8%A2%AD%E9%94%A4.png)
-
+![自然法则抄袭锤.png](https://s2.loli.net/2023/04/20/V46gbJ37tzYRSEh.png)
 
 还不止这个：
 
- ![（席瑞教授2021年8月19日的视频）](https://github.com/shuangcui1/Xirui/blob/main/%E6%8A%96%E9%9F%B3%E7%AC%AC%E4%B8%80%E4%BB%B6%E4%BA%8B.jpg)
+
+![抖音第一件事.jpg](https://s2.loli.net/2023/04/20/nKhkUv4tNpFaRAV.jpg)
+
+
 
 席瑞教授2021年8月19日的视频
 
- ![百家号上2020年5月27日某网友创作的标题](https://github.com/shuangcui1/Xirui/blob/main/%E7%AC%AC%E4%B8%80%E4%BB%B6%E4%BA%8B%E6%8A%84%E8%A2%AD%E9%94%A4.jpg)
+![第一件事抄袭锤.jpg](https://s2.loli.net/2023/04/20/dQB8p5Jqy6CKGW4.jpg)
 
 百家号上2020年5月27日某网友创作的标题
 
@@ -80,8 +76,7 @@
 
 开课吧于2022年8月左右暴雷，付不起工资，拖欠供应商款项，购买的课程无法继续使用，申请退费更是遥遥无期。开课吧自成立以来，累计付费学员超过500万。仅平台“必投诉”上，就有数字惊人的受害者： 
 
-![](/assets/开课吧.png)
-
+![开课吧.png](https://s2.loli.net/2023/04/20/ZBqrfMiP1ecONFE.png)
 
 
 
@@ -114,8 +109,7 @@
 他知道。
 
 
-![](https://github.com/shuangcui1/Xirui/blob/main/%E5%BE%81%E4%BF%A1.png)
-
+![征信.png](https://s2.loli.net/2023/04/20/z6GjsBK1rlxDf39.png)
 
 
 
